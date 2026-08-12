@@ -1,0 +1,1 @@
+Wilayah tempat [[D&D/Original Adventures/Vaelithra/5. The Sun God's Last Wish/Locations/Atrakaj|Atrakaj]] berada, dengan tradisi kuliner dan budaya khasnya sendiri — jamuan selamat datang House Ra menyajikan hidangan "khas Vostok". Bagian dari dunia [[D&D/Worlbuilding/Story/Locations/Dewanegara|Dewanegara]] yang lebih luas.
